@@ -1,1 +1,1 @@
-# BSAWC - Blue Sky and White Clouds
+# BSAWC
